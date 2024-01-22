@@ -1,2 +1,1 @@
-# ducanhxtrabitzz.github.io
 test
